@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects related to AI
 - 📫 How to reach me :You can connect with me on LinkedIn or email me at krisen80@gmail.com.
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact:I am pursuing PG diploma in yoga and love integrating technology with wellness practices!
+- ⚡ Fun fact:I am certified yoga Practioner and love integrating technology with wellness practices!
 
 <!---
 KrithikaSendhilkumar/KrithikaSendhilkumar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
